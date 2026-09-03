@@ -86,4 +86,26 @@ i enjoy arts such as taxidermy, scultping, coding(? is that Art) etc etc
 
 on the topic of taxidermy (animals) i really like jackals (black backed jackals) + i am a jackalkin, birds of prey/predatory birds, big cats (specially caracals and pumas and other mountain species(?)), domestic cats (nerd of cat breeds. my favs are curly haired breeds (devon / cornish rex pref + laperm), russian blues, bombays, oriental shorthairs/other shorthairs)
 
-# ill do dni tomorrow im too fat
+# dni
+- boundary oversteppers
+  - this includes if you touch/cover/crowd people with td/cd ingame
+- uses fonts for casual chatting
+  - if you use fonts for things such as profiles youre on very thin ice
+    - fonts break screen readers (used by people with visibility/reading issues) you just make people's lives harder
+- overly sensitive people / overly woke people
+
+ill probably add more
+
+## fandom dnis
+- the coffin of andrew and leyley
+- house of puso
+  - idc about aph fans because you guys at least are aware of youcis' struggles
+- pressure
+
+## fandoms on thin ice / interact with care
+- evade
+- alfred's playhouse
+- grace
+- regretevator
+- anything currently mainstream ngl
+- any roblox/minecraft args/series
