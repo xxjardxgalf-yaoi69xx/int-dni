@@ -93,6 +93,11 @@ on the topic of taxidermy (animals) i really like jackals (black backed jackals)
   - if you use fonts for things such as profiles youre on very thin ice
     - fonts break screen readers (used by people with visibility/reading issues) you just make people's lives harder
 - overly sensitive people / overly woke people
+- if youve DARED to say that argentina was a racist country during the world cup
+  - "oh but you guys call everyone negro" its a nickname we use for family members and friends and just JUST A NICKNAME. it has NO relation to your skin color or anything. if you have other bullshit to say i hope you know at least we dont have such thing as ICE in our country and that we are a country with a lot of immigrant population. we are the friendliest country to immigrants
+  - if i see you saying some bullshit along these lines ill genuionely block you. yeah bash our government we all know it sucks yeah our president is friends with trump but like thats only our president.
+- if you post eyestrain without a cw/dont care at all about what it can cause
+  - i block eyestrain ponies of whatever kind in pt because my contrast and brightness settings are higher because of my visibility issues
 
 ill probably add more
 
