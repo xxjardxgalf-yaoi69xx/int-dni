@@ -98,6 +98,10 @@ on the topic of taxidermy (animals) i really like jackals (black backed jackals)
   - if i see you saying some bullshit along these lines ill genuionely block you. yeah bash our government we all know it sucks yeah our president is friends with trump but like thats only our president.
 - if you post eyestrain without a cw/dont care at all about what it can cause
   - i block eyestrain ponies of whatever kind in pt because my contrast and brightness settings are higher because of my visibility issues
+- DISCORD sv/nv users
+  - texting is already nonverbal Dont piss me off
+  - also u guys make neurodivergency or nonverbality seem quirky and cute dont fucking deny it
+  - pony town sv/nv users r on really really thin ice
 
 ill probably add more
 
